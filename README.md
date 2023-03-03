@@ -2,7 +2,6 @@ Hosting Link :- https://contact-list-9616a.web.app/
 
 
 
-![Screenshot (30)](https://user-images.githubusercontent.com/66356658/219162232-8d52cc18-a12d-43a8-8480-4785e095c43a.png)
 
 ![Screenshot (31)](https://user-images.githubusercontent.com/66356658/219162414-a46c6444-23fc-458a-9462-92e189a1ffa9.png)
 
